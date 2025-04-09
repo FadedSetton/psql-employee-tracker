@@ -40,7 +40,7 @@ SO THAT I can organize and plan my business
 
 ## 🎥 Walkthrough Video
 
-[👉 Click here to watch the demo](https://your-video-link.com)
+[👉 Click here to watch the demo](https://app.screencastify.com/v3/watch/eNh4evSJBfmStVEi9305)
 
 
 
